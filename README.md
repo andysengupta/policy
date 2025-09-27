@@ -1,4 +1,4 @@
-**Ride Vibes Privacy Policy**
+**KinetiIQ Privacy Policy**
 Effective Date: September 20, 2025
 
 Your Privacy Matters. Ride Vibes (developed by Parnih Tech Ltd is committed to protecting your privacy. This policy explains how we handle data from our iOS app.
